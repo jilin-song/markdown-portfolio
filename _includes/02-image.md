@@ -1,1 +1,1 @@
-![image of ocean](https://images.app.goo.gl/VCyWmW1LcdZEupmXA)
+![image of ocean](https://www.freepnglogos.com/pics/google-logo)
